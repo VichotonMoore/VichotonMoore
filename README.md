@@ -1,1 +1,1 @@
-Pushing AI and vibe coding to failure
+Vibe coding to failure
